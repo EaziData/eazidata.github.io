@@ -1,1 +1,0 @@
-# eazidata.github.io
